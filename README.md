@@ -1,4 +1,4 @@
-Oi prazer, Atualmente estudo Curso Técnico de Informática, estou aqui para aprender e entender mais ainda a programação como um todo ex: JavaScript, Python, HTML5 e CSS3.
+Oi prazer, Atualmente estou Cursando Técnico de Informática, estou aqui para aprender e entender mais ainda a programação como um todo ex: JavaScript, Python, HTML5 e CSS3.
 Estou querendo me aperfeiçoar e começar a ter uma ecônomia autônoma, trabalhar como Freelancer pra ter mais expêriencia.
 
 Informação: Atualmente Cursando Técnico em Informática (Escola QI)
